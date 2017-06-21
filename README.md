@@ -1,3 +1,5 @@
-This is a placeholder for educationfuturism.com, which used to be a Medium publication.
+Education Futurism
 
-The domain will expire in April 2018 and will not be renewed.
+This URL was once a Medium publication, but the publication has been deleted and the domain will expire in April 2018.
+========
+
